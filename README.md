@@ -1,1 +1,1 @@
-# Strona---Lekcje
+# Strona
